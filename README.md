@@ -20,7 +20,7 @@ ___
 ---
 
 <p align="center">꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Artist&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;Profile Picture @ myself</p>
- <p align="center"><img src="https://64.media.tumblr.com/3120f11663edfb215afcb25a12bbf486/c0ac4702404210f7-9c/s2048x3072/95b8bd4d4177dbe5c07e2a8ccd8885982c044fe1.pnj" width="300"><img src="https://64.media.tumblr.com/c087ee7d594152100661f86eaf796da0/f250a6ef410aaf43-01/s2048x3072/d0329ff398f8505cc5a1b2df2aa0467e5213ad6b.pnj" width="200"><img src="https://64.media.tumblr.com/d5a034a3a6caea79f86f561eb2201f81/0b230eb3960c50ec-96/s2048x3072/6831a49532068d4414ca97db4e5560bd34007d52.pnj" width="200"><img src="https://64.media.tumblr.com/1d28f999562b49f334b17fda968dc6e0/caa4dc41e130a274-cf/s2048x3072/1987d02cb5d1bc0f3a7b9ca4ec5b56ebc47144c5.pnj" width="200"></p>
+ <p align="center"><img src="https://64.media.tumblr.com/3120f11663edfb215afcb25a12bbf486/c0ac4702404210f7-9c/s2048x3072/95b8bd4d4177dbe5c07e2a8ccd8885982c044fe1.pnj" width="300"><img src="https://64.media.tumblr.com/c087ee7d594152100661f86eaf796da0/f250a6ef410aaf43-01/s2048x3072/d0329ff398f8505cc5a1b2df2aa0467e5213ad6b.pnj" width="200"><img src="https://64.media.tumblr.com/d5a034a3a6caea79f86f561eb2201f81/0b230eb3960c50ec-96/s2048x3072/6831a49532068d4414ca97db4e5560bd34007d52.pnj" width="200"></p>
 
 ---
 
