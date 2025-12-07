@@ -17,6 +17,8 @@ ___
 
 <p align="center">Straw.Page&nbsp;&nbsp;&nbsp;&nbsp;#&nbsp;&nbsp;&nbsp;&nbsp;https://visualcortex.straw.page
 
+<p align="center">Basic DNI critera (racism, homophobia, transphobia) applies. Just be a decent person and we will get along.
+
 ---
 
 <p align="center">꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Artist&nbsp;&nbsp;&nbsp;&nbsp;:&nbsp;&nbsp;&nbsp;&nbsp;Profile Picture @ myself</p>
