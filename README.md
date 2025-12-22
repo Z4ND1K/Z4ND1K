@@ -17,7 +17,7 @@ ___
 
 <p align="center">Straw.Page&nbsp;&nbsp;&nbsp;&nbsp;#&nbsp;&nbsp;&nbsp;&nbsp;https://visualcortex.straw.page
 
-<p align="center">Basic DNI critera (racism, homophobia, transphobia) applies. Just be a decent person and we will get along.</p>
+<p align="center">Basic DNI critera (racism, homophobia, transphobia) applies. Just be a decent person and we will get along. Asking for any supporter benefits (party or island limitations) = perma hide</p>
 <p align="center">They don't know my Final Fantasy XIV main character is Zandik...
  <p align="center"><img src="https://file.garden/Z1gno8ui9RSiQCd6/yay.png" width="200">
 ---
