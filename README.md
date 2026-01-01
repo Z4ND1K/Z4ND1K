@@ -30,7 +30,7 @@ ___
 
 <p align="center"><img src="https://64.media.tumblr.com/45010e0220be0fc1aafc00f0fb273517/3f580b1c4658ec4d-78/s100x200/5b95dd3046f9bca37d172af6628a643524e9aa5f.gifv" width="150"> <img src="https://64.media.tumblr.com/01d227e1531e6d5adb294b4275d74cf0/7f0dfe165277a14d-09/s100x200/92855479a64c75024ecfc3984f634a2cdabb3ebb.gifv" width="150"><img src="https://64.media.tumblr.com/257e6e7b714ce613e646eada17f84911/7f0dfe165277a14d-bb/s100x200/b48e40c15daa80bde9d15326923fd87c0d9fec5d.gifv" width="150"><p align="center">
 
-<p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=4NGELIK.4NGELIK&left_color=coral&right_color=crimson"  />
+<p align="center"><img src="https://visitor-badge.laobi.icu/badge?page_id=Z4ND1K.Z4ND1K&left_color=#8f9cdb&right_color=#464665"  />
 
 
 [image1]: <https://pixels.crd.co/assets/images/gallery24/9706a967.gif?v=29416114>
